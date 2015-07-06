@@ -1,3 +1,0 @@
-# NURI-GAB
-
-Team Project
